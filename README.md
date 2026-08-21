@@ -12,5 +12,5 @@
 
 </div>
 
-<sub>${\text{\color{#54D2FF} text　\color{#E30073} textㅤ\color{#EF0079} textㅤ　\color{#FF007F} textㅤ　\color{#FA62AD} text　\color{#F995C6} text \color{#F9A6CF} text　\color{#FCEAE2}ㅤtext　\color{#fffefd}ㅤtext}}$ <br>
+<sub>${\text{\color{#54D2FF} text　\color{#66D7FF} textㅤ\color{#7ADDFF} textㅤ　\color{#8FE3FF} textㅤ　\color{#A3E8FF} text　\color{#B8EEFF} text \color{#CCF2FF} text　\color{#DEF7FF}ㅤtext　\color{#F2FCFF}ㅤtext}}$ <br>
 <br>
