@@ -15,5 +15,5 @@
 
 <a href="https://ekubo-n1simp.straw.page">s</a>trawpage
 
-<sub>${\text{\color{#330B23} YᑌᗰI ⸝⸝　\color{#E30073} Eᔕᖴᑭ️ㅤ୨୧ㅤ\color{#EF0079} ᔕᕼE⠀.⠀ᕼEᖇ ㅤノㅤ　\color{#FF007F} ᗷIㅤ୨୧ㅤ　\color{#FA62AD} Iᑎ　\color{#F995C6} Oᖇㅤ୨୧ㅤOᑌT\color{#F9A6CF}ㅤᔕᑭᗩᗯᑎ　\color{#FCEAE2}ㅤor　\color{#fffefd}ㅤᗯITᕼㅤᖴᖇIEᑎᗪᔕ}}$ <br>
+<sub>${\text{\color{#330B23} text　\color{#E30073} textㅤ\color{#EF0079} textㅤ　\color{#FF007F} textㅤ　\color{#FA62AD} text　\color{#F995C6} text \color{#F9A6CF} text　\color{#FCEAE2}ㅤtext　\color{#fffefd}ㅤtext}}$ <br>
 <br>
