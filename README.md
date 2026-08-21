@@ -13,8 +13,11 @@
 
 </div>
 
+<div align="center">
+  
 <a href="https://ekubo-n1simp.straw.page">s</a>traw - ![1000031179](https://github.com/user-attachments/assets/62fd6eee-6d84-4a12-a566-2184e73547ca) - <a href="https://y0urm0thar.atabook.org">a</a>ta - ![1000031178](https://github.com/user-attachments/assets/762825e8-beed-436e-8be5-6a2534c90b06) - <a href="https://alterspring.org/@Y0URM0THAR">a</a>lterspring - ![1000031181](https://github.com/user-attachments/assets/b301a9ad-f538-4f4f-aba1-6d723516e5b3) - <a href="https://pronouns.cc/@Y0URM0THAR">p</a>rns
 
+</div>
 
 <sub>${\text{\color{#330B23} text　\color{#E30073} textㅤ\color{#EF0079} textㅤ　\color{#FF007F} textㅤ　\color{#FA62AD} text　\color{#F995C6} text \color{#F9A6CF} text　\color{#FCEAE2}ㅤtext　\color{#fffefd}ㅤtext}}$ <br>
 <br>
