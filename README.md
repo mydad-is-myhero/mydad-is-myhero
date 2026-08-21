@@ -13,4 +13,4 @@
 
 </div>
 
-<a href="https://ekubo-n1simp.straw.page">straw</a>
+<a href="https://ekubo-n1simp.straw.page">s</a>trawpage
