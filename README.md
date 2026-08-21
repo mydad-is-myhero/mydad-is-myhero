@@ -7,7 +7,7 @@
 ![1000031169](https://github.com/user-attachments/assets/86f8562e-a443-4244-b8a0-88b392d6f369)
 
 
-<sub>${\text{\color{#54D2FF} 𝗠addie / 𝗙lynn! ︶︶　\color{#66D7FF} 𝗠inor ︶︶\color{#7ADDFF} 𝗙reely 𝗶nt! ︶︶\color{#8FE3FF} 𝗠ay 𝟭2th ︶︶\color{#A3E8FF} 𝗔theist! ︶︶\color{#B8EEFF} 𝗕isexual 𝗟esbian! ︶︶\color{#CCF2FF} 𝗚enderfluid! ︶︶\color{#DEF7FF}ㅤㅤ𝗜sfp-𝘁! ︶︶\color{#F2FCFF}ㅤtext}}$ <br>
+<sub>${\text{\color{#54D2FF} 𝗠addie / 𝗙lynn! ︶︶　\color{#66D7FF} 𝗠inor ︶︶\color{#7ADDFF} 𝗙reely 𝗶nt! ︶︶\color{#8FE3FF} 𝗠ay 𝟭2th ︶︶\color{#A3E8FF} 𝗔theist! ︶︶\color{#B8EEFF} 𝗕isexual 𝗟esbian! ︶︶\color{#CCF2FF} 𝗚enderfluid! ︶︶ \color{#DEF7FF}𝗜sfp-𝘁! ︶︶\color{#F2FCFF}ㅤtext}}$ <br>
 <br>
 
   
