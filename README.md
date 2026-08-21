@@ -8,7 +8,7 @@
 
 
 <div align="center">
-  
-![1000031157](https://github.com/user-attachments/assets/81a157a3-d212-455e-88f2-48ab6230bccd)
+
+![1000031169](https://github.com/user-attachments/assets/86f8562e-a443-4244-b8a0-88b392d6f369)
 
 </div>
