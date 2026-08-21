@@ -13,7 +13,7 @@
 
 </div>
 
-<a href="https://ekubo-n1simp.straw.page">s</a>trawpage - ![1000031178](https://github.com/user-attachments/assets/db3541f6-ab57-4a4d-acb1-877ba113b6f8) - <a href="https://google.com">link</a> - image - <a href="https://google.com">link</a>
+<a href="https://ekubo-n1simp.straw.page">s</a>trawpage - ![1000031179](https://github.com/user-attachments/assets/62fd6eee-6d84-4a12-a566-2184e73547ca) - <a href="https://google.com">link</a> - ![1000031178](https://github.com/user-attachments/assets/762825e8-beed-436e-8be5-6a2534c90b06) - <a href="https://google.com">link</a> - image - <a href="https://google.com">link</a>
 
 
 <sub>${\text{\color{#330B23} text　\color{#E30073} textㅤ\color{#EF0079} textㅤ　\color{#FF007F} textㅤ　\color{#FA62AD} text　\color{#F995C6} text \color{#F9A6CF} text　\color{#FCEAE2}ㅤtext　\color{#fffefd}ㅤtext}}$ <br>
