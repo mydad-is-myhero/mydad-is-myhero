@@ -13,3 +13,11 @@
 
   
 <a href="https://batarou-addict.straw.page/">s</a>traw - image - <a href="https://y0urm0thar.atabook.org">a</a>ta - image - <a href="https://alterspring.org/@Y0URM0THAR">a</a>lterspring - image - <a href="https://pronouns.cc/@Y0URM0THAR">p</a>rns
+
+<details>
+  <summary> 𝗖redits ! </summary>
+  <br>
+   𝗣fp - <a href="https://pinterest.com">pinterest</a> IM TRYING TO FIND IT DW
+  <br> <br>
+  <br> <br>
+  </details>
