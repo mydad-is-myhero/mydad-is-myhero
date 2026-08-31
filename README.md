@@ -5,7 +5,7 @@
 <sub>${\text{\color{#ffffff} text}}$ <br>
 <br>
 
-image (need to resize)
+![1000032262](https://github.com/user-attachments/assets/dfbbe8fb-a188-4444-ad93-2e322e756982)
  
 
 <sub>${\text{\color{#ffffF} text　\color{#ffffff} textㅤ\color{#ffffff} textㅤ　\color{#ffffff} textㅤ　\color{#ffffff} text　\color{#ffffff} text \color{#ffffff} text　\color{#ffffff}ㅤtext　\color{#ffffff}ㅤtext}}$ <br>
