@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=mydad-is-myhero&label=Parasites+.+.+.+ᰔ&color=000000)
 
-<sub>${\text{\color{#ffffff} ❝　\color{#FADC66} I forgotㅤ\color{#FABF66} things could beㅤ　\color{#faae66} beautiful.　\color{#fca049}ㅤ❞}}$ <br>
+<sub>${\text{\color{#FAF066} ❝　\color{#FADC66} I forgotㅤ\color{#FABF66}things could beㅤ　\color{#faae66}beautiful.　\color{#fca049}ㅤ❞}}$ <br>
 <br>
 <br>
 
