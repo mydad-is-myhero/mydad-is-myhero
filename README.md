@@ -14,7 +14,7 @@
   
 
  <a href="https://batarou-addict.straw.page/"><img src="https://github.com/user-attachments/assets/7cea83fb-78b5-4ad2-ac75-9a53ecc697de"/> </a>
-</p><img - <a href="https://y0urm0thar.atabook.org">a</a>ta - image - <a href="https://alterspring.org/@Y0URM0THAR">a</a>lterspring - image - <a href="https://pronouns.cc/@Y0URM0THAR">p</a>rns
+<a href="https://y0urm0thar.atabook.org"><img src="https://github.com/user-attachments/assets/4fd4be32-f38e-4d85-8f63-f4af0d0ea73f"/> </a> <a href="https://pronouns.cc/@Y0URM0THAR"><img src="https://github.com/user-attachments/assets/399a8da2-b487-4ed3-a555-b22697729477"/> </a>
 
 <details>
   <summary> 𝗖redits ! </summary>
