@@ -12,7 +12,7 @@
 <br>
 
   
-<a href="https://batarou-addict.straw.page/">s</a>traw - image - <a href="https://y0urm0thar.atabook.org">a</a>ta - image - <a href="https://alterspring.org/@Y0URM0THAR">a</a>lterspring - image - <a href="https://pronouns.cc/@Y0URM0THAR">p</a>rns
+<a href="https://batarou-addict.straw.page/">s</a>traw - <img src="https://github.com/user-attachments/assets/2186da3f-1a3a-40b9-a338-c41f689ac75f" alt="Alt Text" width="150" height="150"> - <a href="https://y0urm0thar.atabook.org">a</a>ta - image - <a href="https://alterspring.org/@Y0URM0THAR">a</a>lterspring - image - <a href="https://pronouns.cc/@Y0URM0THAR">p</a>rns
 
 <details>
   <summary> 𝗖redits ! </summary>
