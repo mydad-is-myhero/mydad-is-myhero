@@ -12,8 +12,8 @@
 <br>
 
   
-<a href="https://batarou-addict.straw.page/">s</a>traw - <p align="center">
- <a href="https://yumixx.atabook.org/"><img src="https://github.com/user-attachments/assets/2186da3f-1a3a-40b9-a338-c41f689ac75f"/> </a>
+
+ <a href="https://batarou-addict.straw.page/"><img src="https://github.com/user-attachments/assets/2186da3f-1a3a-40b9-a338-c41f689ac75f"/> </a>
 </p><img - <a href="https://y0urm0thar.atabook.org">a</a>ta - image - <a href="https://alterspring.org/@Y0URM0THAR">a</a>lterspring - image - <a href="https://pronouns.cc/@Y0URM0THAR">p</a>rns
 
 <details>
