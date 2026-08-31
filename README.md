@@ -8,7 +8,7 @@
 ![1000032262](https://github.com/user-attachments/assets/dfbbe8fb-a188-4444-ad93-2e322e756982)
  
 
-<sub>${\text{\color{#FAF066} texttext　\color{#FADC66} texttext \color{#FABF66} texttext \color{#FAAE66}texttext \color{#FCA049}texttext \color{#FC7F49}texttextㅤ\color{#FC6149}texttext　\color{#ED3434}ㅤtexttext}}$ <br>
+<sub>${\text{\color{#ED3434} texttext　\color{#FC6149} texttext \color{#FC7F49} texttext \color{#FCA049}texttext \color{#FAAE66}texttext \color{#FABF66}texttextㅤ\color{#FADC66}texttext　\color{#FAF066}ㅤtexttext}}$ <br>
 
   
 
