@@ -20,6 +20,7 @@
   <summary> 𝗖redits ! </summary>
   <br>
    𝗣fp - <a href="https://feriowind.tumblr.com/post/99628489945/enigmasurao-%E5%85%A8%E5%88%86%E3%81%91%E3%83%90%E3%83%BC%E3%82%B8%E3%83%A7%E3%83%B3%E3%82%82%E6%8F%8F%E3%81%84%E3%81%A6%E3%81%BF%E3%81%9F%E3%81%84">𝗧umblr</a> It's been reposted everywhere, but tumblr is where I first found it (ᗒᗣᗕ)
-  <br> <br>
+ 
+  𝗘verything else is made by me!
   <br> <br>
   </details>
