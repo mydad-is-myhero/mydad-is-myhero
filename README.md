@@ -2,7 +2,8 @@
   
 ![](https://komarev.com/ghpvc/?username=mydad-is-myhero&label=Parasites+.+.+.+ᰔ&color=000000)
 
-<sub>${\text{\color{#ffffff} text}}$ <br>
+<sub>${\text{\color{#ffffF} text　\color{#ffffff} textㅤ\color{#ffffff} textㅤ　\color{#ffffff} textㅤ　\color{#ffffff} text　\color{#ffffff} text \color{#ffffff} text　\color{#ffffff}ㅤtext　\color{#ffffff}ㅤtext}}$ <br>
+<br>
 <br>
 
 ![1000032262](https://github.com/user-attachments/assets/dfbbe8fb-a188-4444-ad93-2e322e756982)
