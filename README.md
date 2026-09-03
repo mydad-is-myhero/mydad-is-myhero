@@ -10,10 +10,9 @@
 
 <sub>${\text{\color{#ED3434} ︶︶　\color{#FC6149} 𝗜nt / C×H on ponytown freely! . \color{#FC7F49} 𝗖heck straw for DNI and Fandoms . \color{#FCA049} 𝗠y Discord is y0urm0thar! . \color{#FAAE66}𝗖urrent \color{#FABF66}obsession:ㅤ\color{#FADC66}𝗣arasyte! (≧◡≦)　\color{#FAF066}ㅤ︶︶}}$ <br>
 
-<sub>${\text{\color{#FAF066} ︶︶　\color{#FADC66} Please sign \color{#FABF66} my friend's \color{#FAAE66} atabook, it would \color{#FCA049} make his day! \color{#FC7F49}♡ㅤ\color{#FC6149} ->　}}$ <br>
-wip (ok)
+<sub>${\text{\color{#FAF066} ︶︶　\color{#FADC66} Please sign \color{#FABF66} my friend's \color{#FAAE66} atabook, it would \color{#FCA049} make his day! \color{#FC7F49}♡ㅤ\color{#FC6149} ->　}}$ <a href="https://yourlastsurprisenotmine.atabook.org/?page=1">here !</a>	<sub>${\text{\color{#ED3434}ㅤ︶︶}}$ <br>
 
-<sub>${\text{\color{#ED3434}︶︶　\color{#FC6149} Click on the images \color{#FC7F49} below \color{#FCA049}for my \color{#FAAE66}strawpage, \color{#FABF66}atabok,\color{#FADC66} and prns.cc!　\color{#FAF066}︶︶}}$ <br>
+<sub>${\text{\color{#ED3434}︶︶　\color{#FC6149} Click on the images \color{#FC7F49} below \color{#FCA049}for my \color{#FAAE66}strawpage, \color{#FABF66}atabok,\color{#FADC66} and prns.cc!　\color{#FAF066}︶︶}}$ <br> 
   
 
  <a href="https://batarou-addict.straw.page/"><img src="https://github.com/user-attachments/assets/7cea83fb-78b5-4ad2-ac75-9a53ecc697de"/> </a>
