@@ -5,7 +5,7 @@
 <sub>${\text{\color{#F0F2F5} ❝　\color{#D5D8E0} Txt \color{#B5BAC7} txt \color{#979DAD}txt \color{#81889C}txt \color{#71798F} txt\color{#616980} txt　\color{#525A70}ㅤ❞}}$ <br>
 
 
-![1000033780](https://github.com/user-attachments/assets/096980c8-6cd6-4461-bc89-64e0874fb8f9)
+![1000034565](https://github.com/user-attachments/assets/7b648c84-51ec-4097-bbd1-ecd6886e5bef)
 
 <sub>${\text{\color{#525A70} ︶︶　\color{#616980} 𝗜nt / C×H on ponytown freely! . \color{#71798F} 𝗖heck straw for DNI and Fandoms . \color{#81889C} 𝗠y Discord is y0urm0thar! . \color{#979DAD}𝗖urrent \color{#B5BAC7}obsession:ㅤ\color{#D5D8E0}𝗣arasyte! (≧◡≦)　\color{#F0F2F5}ㅤ︶︶}}$ <br>
 
