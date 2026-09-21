@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=mydad-is-myhero&label=Parasites+.+.+.+ᰔ&color=81889C)
+![](https://komarev.com/ghpvc/?username=mydad-is-myhero&label=𝗔ssasins+.+.+.+ᰔ&color=81889C)
 
 <sub>${\text{\color{#F0F2F5} ❝　\color{#D5D8E0} Txt \color{#B5BAC7} txt \color{#979DAD}txt \color{#81889C}txt \color{#71798F} txt\color{#616980} txt　\color{#525A70}ㅤ❞}}$ <br>
 
