@@ -2,15 +2,15 @@
   
 ![](https://komarev.com/ghpvc/?username=mydad-is-myhero&label=𝗔ssasins+.+.+.+ᰔ&color=81889C)
 
-<sub>${\text{\color{#E8DD76} ❝　\color{#E3D977} Txt \color{#D5CE7C} txt \color{#D5CE7C}txt \color{#D5CE7C}txt \color{#D5CE7C} txt\color{#D5CE7C} txt　\color{#81889C}ㅤ❞}}$ <br>
+<sub>${\text{\color{#E8DD76} ❝　\color{#E3D977} Txt \color{#D5CE7C} txt \color{#BAB786}txt \color{#BAB786}txt \color{#BAB786} txt\color{#BAB786} txt　\color{#81889C}ㅤ❞}}$ <br>
 
 
 ![1000034565](https://github.com/user-attachments/assets/7b648c84-51ec-4097-bbd1-ecd6886e5bef)
 
-<sub>${\text{\color{#81889C} ︶︶　\color{#D5CE7C} 𝗜nt / C×H on ponytown freely! . \color{#D5CE7C} 𝗖heck straw for DNI and Fandoms . \color{#D5CE7C} 𝗠y Discord is y0urm0thar! . \color{#D5CE7C}𝗖urrent \color{#D5CE7C}obsession:ㅤ\color{#E3D977}𝗣arasyte! (≧◡≦)　\color{#E8DD76}ㅤ︶︶}}$ <br>
+<sub>${\text{\color{#81889C} ︶︶　\color{#BAB786} 𝗜nt / C×H on ponytown freely! . \color{#BAB786} 𝗖heck straw for DNI and Fandoms . \color{#BAB786} 𝗠y Discord is y0urm0thar! . \color{#BAB786}𝗖urrent \color{#D5CE7C}obsession:ㅤ\color{#E3D977}𝗣arasyte! (≧◡≦)　\color{#E8DD76}ㅤ︶︶}}$ <br>
 
 
-<sub>${\text{\color{#E8DD76}︶︶　\color{#E3D977} 𝗖lick on the images \color{#D5CE7C} below \color{#D5CE7C}for my \color{#D5CE7C} 𝘀trawpage, \color{#D5CE7C} 𝗮tabok,\color{#D5CE7C} and 𝗽rns.cc!　\color{#81889C}︶︶}}$ <br> 
+<sub>${\text{\color{#E8DD76}︶︶　\color{#E3D977} 𝗖lick on the images \color{#D5CE7C} below \color{#BAB786}for my \color{#BAB786} 𝘀trawpage, \color{#BAB786} 𝗮tabok,\color{#BAB786} and 𝗽rns.cc!　\color{#81889C}︶︶}}$ <br> 
   
 
  <a href="https://batarou-addict.straw.page/"><img src="https://github.com/user-attachments/assets/79eb2591-e4dd-49b4-aa81-4d4178c0c330"/> </a>
