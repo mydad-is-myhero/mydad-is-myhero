@@ -13,8 +13,8 @@
 <sub>${\text{\color{#F0F2F5}︶︶　\color{#D5D8E0} 𝗖lick on the images \color{#B5BAC7} below \color{#979DAD}for my \color{#81889C} 𝘀trawpage, \color{#71798F} 𝗮tabok,\color{#616980} and 𝗽rns.cc!　\color{#525A70}︶︶}}$ <br> 
   
 
- <a href="https://batarou-addict.straw.page/"><img src="https://github.com/user-attachments/assets/83b49649-7319-467f-b0d0-b5f8c3ee5ceb"/> </a>
-<a href="https://y0urm0thar.atabook.org"><img src="https://github.com/user-attachments/assets/5fc81ce7-0a4c-4a16-85bf-149c172af32f"/> </a> <a href="https://pronouns.cc/@Y0URM0THAR"><img src="https://github.com/user-attachments/assets/b989a53b-fce6-41ba-9d0e-bdeb5315b624"/> </a>
+ <a href="https://batarou-addict.straw.page/"><img src="https://github.com/user-attachments/assets/79eb2591-e4dd-49b4-aa81-4d4178c0c330"/> </a>
+<a href="https://y0urm0thar.atabook.org"><img src="https://github.com/user-attachments/assets/e306f665-264f-43f5-b5b7-cdf09d2c4877"/> </a> <a href="https://pronouns.cc/@Y0URM0THAR"><img src="https://github.com/user-attachments/assets/a31224ce-66fd-4830-b556-c5d58eee6f05"/> </a>
 
 
 <details>
