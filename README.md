@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=mydad-is-myhero&label=Parasites+.+.+.+ᰔ&color=81889C)
 
-<sub>${\text{\color{#F0F2F5} ❝　\color{#D5D8E0} 𝗬ou \color{#B5BAC7} 𝙖𝙧𝙚 \color{#979DAD}Shinichi \color{#81889C}Izumi-Kun, \color{#71798F} right\color{#616980} ? . . .　\color{#525A70}ㅤ❞}}$ <br>
+<sub>${\text{\color{#F0F2F5} ❝　\color{#D5D8E0} Txt \color{#B5BAC7} txt \color{#979DAD}txt \color{#81889C}txt \color{#71798F} txt\color{#616980} txt　\color{#525A70}ㅤ❞}}$ <br>
 
 
 ![1000033780](https://github.com/user-attachments/assets/096980c8-6cd6-4461-bc89-64e0874fb8f9)
