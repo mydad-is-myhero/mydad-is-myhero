@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=mydad-is-myhero&label=𝗔ssasins+.+.+.+ᰔ&color=81889C)
 
-<sub>${\text{\color{#E8DD76} ❝　\color{#E3D977} Txt \color{#D5CE7C} txt \color{#BAB786}txt \color{#9B9E92}txt \color{#888E99} txt\color{#81889C} txt　\color{#6F788E}ㅤ❞}}$ <br>
+<sub>${\text{\color{#E8DD76} ❝　\color{#E3D977} 𝗧hey'll call our \color{#D5CE7C} 𝙘𝙧𝙞𝙢𝙚𝙨 \color{#BAB786}a work \color{#9B9E92}of \color{#888E99} 𝙖𝙧𝙩\color{#81889C} !　\color{#6F788E}ㅤ❞}}$ <br>
 
 
 ![1000034565](https://github.com/user-attachments/assets/7b648c84-51ec-4097-bbd1-ecd6886e5bef)
