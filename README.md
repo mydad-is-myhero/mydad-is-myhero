@@ -10,7 +10,7 @@
 <sub>${\text{\color{#6F788E} ︶︶　\color{#81889C} 𝗜nt / C×H on ponytown freely! . \color{#888E99} 𝗖heck straw for DNI and Fandoms . \color{#9B9E92} 𝗠y Discord is y0urm0thar! . \color{#BAB786}𝗖urrent \color{#D5CE7C}obsession:ㅤ\color{#E3D977}𝗣arasyte! (≧◡≦)　\color{#E8DD76}ㅤ︶︶}}$ <br>
 
 
-<sub>${\text{\color{#E8DD76}︶︶　\color{#E3D977} 𝗖lick on the images \color{#D5CE7C} below \color{#BAB786}for my \color{#9B9E92} 𝘀trawpage, \color{#888E99} 𝗮tabok,\color{#81889C} and carrd!　\color{#6F788E}︶︶}}$ <br> 
+<sub>${\text{\color{#E8DD76}︶︶　\color{#E3D977} 𝗖lick on the images \color{#D5CE7C} below \color{#BAB786}for my \color{#9B9E92} 𝘀trawpage, \color{#888E99} 𝗮tabok,\color{#81889C} and 𝗰arrd!　\color{#6F788E}︶︶}}$ <br> 
   
 
  <a href="https://batarou-addict.straw.page/"><img src="https://github.com/user-attachments/assets/79eb2591-e4dd-49b4-aa81-4d4178c0c330"/> </a>
