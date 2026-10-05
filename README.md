@@ -29,8 +29,8 @@
   𝗔wards ::
     <a href="https://github.com/pt-hall-of-media">@𝗽t-hall-of-media</a> - Shinichi !
     <a href="https://github.com/pt-medals">@𝗽t-medals</a> - Garou !
-    <a href="https://github.com/pt-friendships">@𝗽t-friendshipx</a> - Omg ilysm le mosquito ♡
     <a href="https://github.com/cosplaytown">@𝗰osplaytown</a> - Garou !
+    <a href="https://github.com/pt-friendships">@𝗽t-friendshipx</a> - Omg ilysm le mosquito ♡
     
   <br> <br>
   </details>
