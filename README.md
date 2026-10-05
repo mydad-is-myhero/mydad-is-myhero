@@ -28,5 +28,7 @@
 
   𝗔wards ::
     <a href="https://github.com/pt-hall-of-media">@𝗽t-hall-of-media</a> - Shinichi !
+    <a href="https://github.com/pt-medals">@𝗽t-medals</a> - Garou !
+    
   <br> <br>
   </details>
