@@ -22,15 +22,19 @@
   <br>
   𝗖redits ↓
  
-  𝗥epository Image - <a href="https://feriowind.tumblr.com/post/99628489945/enigmasurao-%E5%85%A8%E5%88%86%E3%81%91%E3%83%90%E3%83%BC%E3%82%B8%E3%83%A7%E3%83%B3%E3%82%82%E6%8F%8F%E3%81%84%E3%81%A6%E3%81%BF%E3%81%9F%E3%81%84">𝗣interest</a>!
-  
+  𝗥epository Image - <a href="https://feriowind.tumblr.com/post/99628489945/enigmasurao-%E5%85%A8%E5%88%86%E3%81%91%E3%83%90%E3%83%BC%E3%82%B8%E3%83%A7%E3%83%B3%E3%82%82%E6%8F%8F%E3%81%84%E3%81%A6%E3%81%BF%E3%81%9F%E3%81%84">𝗣interest</a>!  
   𝗠/w <a href="https://github.com/iwanttoholdyourhand">𝗔mber</a>!
 
+
   𝗔wards ::
-    <a href="https://github.com/pt-hall-of-media">@𝗽t-hall-of-media</a> - Shinichi !
-    <a href="https://github.com/pt-medals">@𝗽t-medals</a> - Garou !
-    <a href="https://github.com/cosplaytown">@𝗰osplaytown</a> - Garou !
-    <a href="https://github.com/pt-friendships">@𝗽t-friendshipx</a> - Omg ilysm le mosquito ♡
+
+  <a href="https://github.com/pt-hall-of-media">@𝗽t-hall-of-media</a> - Shinichi !
+
+  <a href="https://github.com/pt-medals">@𝗽t-medals</a> - Garou !
+    
+  <a href="https://github.com/cosplaytown">@𝗰osplaytown</a> - Garou ! *(again omg)*
+    
+  <a href="https://github.com/pt-friendships">@𝗽t-friendships</a> - Omg ilysm le mosquito ♡
     
   <br> <br>
   </details>
