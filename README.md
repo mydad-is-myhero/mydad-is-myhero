@@ -22,7 +22,8 @@
   <br>
   𝗖redits ↓
  
-  𝗥epository Image - <a href="https://feriowind.tumblr.com/post/99628489945/enigmasurao-%E5%85%A8%E5%88%86%E3%81%91%E3%83%90%E3%83%BC%E3%82%B8%E3%83%A7%E3%83%B3%E3%82%82%E6%8F%8F%E3%81%84%E3%81%A6%E3%81%BF%E3%81%9F%E3%81%84">𝗣interest</a>!  
+  𝗥epository Image - ok so I don't rlly have the link anymore guys... 😬
+  
   𝗠/w <a href="https://github.com/iwanttoholdyourhand">𝗔mber</a>!
 
 
