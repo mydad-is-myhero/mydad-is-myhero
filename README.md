@@ -27,6 +27,9 @@
   𝗠/w <a href="https://github.com/iwanttoholdyourhand">𝗔mber</a>!
 
 
+𝗔wards account : <a href="https://github.com/pt-menu">@𝗽t-𝗺enu</a>!
+
+
   𝗔wards ::
 
   <a href="https://github.com/pt-hall-of-media">@𝗽t-hall-of-media</a> - Shinichi !
