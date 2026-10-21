@@ -39,6 +39,7 @@
   <a href="https://github.com/cosplaytown">@𝗰osplaytown</a> - Garou ! *(again omg)*
     
   <a href="https://github.com/pt-friendships">@𝗽t-friendships</a> - Omg ilysm le mosquito ♡
+<a href="https://github.com/loverstown">@𝗹overstown</a> - Batarou ! *(platonic in this case ok...)*
     
   <br> <br>
   </details>
