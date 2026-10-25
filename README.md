@@ -6,6 +6,7 @@
 [![Hits](https://hits.sh/github.com/mydad-is-myhero.svg?style=plastic&label=%E2%9C%B6%20Bullets&extraCount=1170&color=81889C&labelColor=acadb7)](https://hits.sh/github.com/mydad-is-myhero/)
 
 
+<sub>${\text{\color{#FFFFFF} " And}}$ <br>
 
 " And sugar, we're going down swinging! "
 
