@@ -13,9 +13,9 @@
 
 ![1000038163](https://github.com/user-attachments/assets/f340cb58-e369-4490-86f4-05200dd38310)
 
-<a href="https://google.com">website</a> ${\text{\color{#B2AC8B}✶}}$
-<a href="https://google.com">website</a> ${\text{\color{#ACADB7}✶}}$
-<a href="https://google.com">website</a>
+<a href="https://google.com">strawpage</a> ${\text{\color{#B2AC8B}✶}}$
+<a href="https://google.com">prns.cc</a> ${\text{\color{#ACADB7}✶}}$
+<a href="https://google.com">atabook</a>
 
 
 
