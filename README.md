@@ -7,7 +7,7 @@
 
 
 
-<sub>${\text{\color{#FFFFFF} " And \color{#B1AC8F}sugar, \color{#B0AC97}we're \color{#AEACA3}going \color{#ACADAE}down \color{#acadb7}swinging! "}}$ <br>
+<sub>${\text{\color{#B2AC8B} " And \color{#B1AC8F}sugar, \color{#B0AC97}we're \color{#AEACA3}going \color{#ACADAE}down \color{#acadb7}swinging! "}}$ <br>
 
 
 
