@@ -3,7 +3,7 @@
 ![1000038150](https://github.com/user-attachments/assets/62c09145-c1b1-4bf6-ba28-f75ba27e750e)
 
 
-[![Hits](https://hits.sh/github.com/mydad-is-myhero/hits.svg?label=%E2%99%A1%20Blackbirds&extraCount=1165&color=81889C&labelColor=7c7154)](https://hits.sh/github.com/mydad-is-myhero/hits/)
+[![Hits](https://hits.sh/github.com/mydad-is-myhero.svg?style=plastic&label=%E2%9C%B6%20Blackbirds&extraCount=1170&color=81889C&labelColor=acadb7)](https://hits.sh/github.com/mydad-is-myhero/)
 
 
 
