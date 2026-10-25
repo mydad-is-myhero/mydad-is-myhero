@@ -7,9 +7,7 @@
 
 
 
-" Martha, my love...
-Don't forget me,
-Martha, my dear. "
+" And sugar, we're going down swinging! "
 
 
 
