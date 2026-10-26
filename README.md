@@ -23,3 +23,28 @@
 
 
 ![1000038060](https://github.com/user-attachments/assets/e3ea8936-d35b-46ea-b098-8d5202504ee8)
+
+
+<details>
+  <summary>
+    <span>$\text{\color{#B2AC8B}Awards!}$</span>
+  </summary>
+  <br>   
+
+
+  <a href="https://github.com/pt-menu">@pt-menu</a>!
+
+  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> - Shinichi !
+
+  <a href="https://github.com/pt-medals">@pt-medals</a> - Garou !
+    
+  <a href="https://github.com/cosplaytown">@cosplaytown</a> - Garou ! *(again omg)*
+    
+  <a href="https://github.com/pt-friendships">@pt-friendships</a> - Omg ilysm le mosquito ♡
+  
+<a href="https://github.com/loverstown">@loverstown</a> - Batarou ! *(platonic in this case ok...)*
+
+
+  <br> <br>
+</details>
+
