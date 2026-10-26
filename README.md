@@ -27,12 +27,12 @@
 
 <details>
   <summary>
-    <span>$\text{\color{#B2AC8B}Awards!}$</span>
+    <span>$\text{\color{#B2AC8B}A\color{#B1AC8F}w\color{#B0AC97}a\color{#AEACA3}r\color{#ACADAE}d\color{#ACADB7}s!}$</span>
   </summary>
   <br>   
 
 
-  <a href="https://github.com/pt-menu">@pt-menu</a>!
+  <a href="https://github.com/pt-menu">@pt-menu</a> - Mango Smoothie !
 
   <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> - Shinichi !
 
