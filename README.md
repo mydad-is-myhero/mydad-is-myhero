@@ -32,18 +32,19 @@
   <br>   
 
 
-  <a href="https://github.com/pt-menu">@pt-menu</a> - Mango Smoothie !
+<a href="https://github.com/pt-menu">@pt-menu</a> - Mango Smoothie !
 
-  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> - Shinichi !
+<a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> - Shinichi !
 
-  <a href="https://github.com/pt-medals">@pt-medals</a> - Garou !
+<a href="https://github.com/pt-medals">@pt-medals</a> - Garou !
     
-  <a href="https://github.com/cosplaytown">@cosplaytown</a> - Garou ! *(again omg)*
+<a href="https://github.com/cosplaytown">@cosplaytown</a> - Garou ! *(again omg)*
     
-  <a href="https://github.com/pt-friendships">@pt-friendships</a> - Omg ilysm le mosquito ♡
+<a href="https://github.com/pt-friendships">@pt-friendships</a> - Omg ilysm le mosquito ♡
   
 <a href="https://github.com/loverstown">@loverstown</a> - Batarou ! *(platonic in this case ok...)*
 
+<a href="https://github.com/pt-everypony">@pt-everypony</a> - Batarou AND Takaba !
 
   <br> <br>
 </details>
