@@ -49,3 +49,14 @@
   <br> <br>
 </details>
 
+<details>
+  <summary>
+    <span>$\text{\color{#ACADB7}New \color{#ACADAE}Dr\color{#AEACA3}aw\color{#B0AC97}in\color{#B1AC8F}g\color{#B2AC8B}s!}$</span>
+  </summary>
+  <br>   
+
+wip
+
+  <br> <br>
+</details>
+
