@@ -48,39 +48,3 @@
 
   <br> <br>
 </details>
-
-✶
-
-<details>
-  <summary>
-    <span>$\text{\color{#ACADB7}New \color{#ACADAE}Dr\color{#AEACA3}aw\color{#B0AC97}in\color{#B1AC8F}g\color{#B2AC8B}s!}$</span>
-  </summary>
-  <br>   
-
-drawn on 11/4/26 !
-
-<img width="500" height="400" alt="1000039228" src="https://github.com/user-attachments/assets/7cee1eb4-e906-410c-a1a0-c6c7231abfad" />
-
-me n my bunwife as our favs ♥︎
-*( me - shinichi :: her - japan )*
-
-<img width="110" height="400" alt="1000039226" src="https://github.com/user-attachments/assets/3524e158-6b39-410d-b0ab-9e3955609688" />
-
-there was a vision...
-
----
-
-drawn on 11/2/26 !
-
-<img width="400" height="400" alt="1000038915" src="https://github.com/user-attachments/assets/8535087b-f6b2-4680-b9ed-0ea753064aea" />
-
-takaba aww aww ...
-
-<img width="350" height="400" alt="1000038764" src="https://github.com/user-attachments/assets/401cfc42-ea0c-4a53-b451-a0ae345d2159" />
-
-feed him...
-
-
-  <br> <br>
-</details>
-
