@@ -48,15 +48,3 @@
 
   <br> <br>
 </details>
-
-
-Should I make another strawpage?
-
-<a href="https://md-poll.vercel.app/api/polls/a68e8184-0938-4632-a515-a47efe4e199b/options/0/vote?close" target="_blank">
-  <img src="https://md-poll.vercel.app/api/polls/a68e8184-0938-4632-a515-a47efe4e199b/options/0/img" alt="yes !" width="300" height="34"/>
-</a>
-<br/>
-<a href="https://md-poll.vercel.app/api/polls/a68e8184-0938-4632-a515-a47efe4e199b/options/1/vote?close" target="_blank">
-  <img src="https://md-poll.vercel.app/api/polls/a68e8184-0938-4632-a515-a47efe4e199b/options/1/img" alt="no !!" width="300" height="34"/>
-</a>
-<br/>
