@@ -14,7 +14,8 @@
 
 <a href="https://63194.straw.page">strawpage</a> ${\text{\color{#B2AC8B}✶}}$
 <a href="https://pronouns.cc/@Y0URM0THAR">prns.cc</a> ${\text{\color{#ADACAA}✶}}$
-<a href="https://y0urm0thar.atabook.org">atabook</a> ${\text{\color{#ACADB7}✶}}$ <a href="https://passportdex.com/y0urm0thar">passportdex</a>
+<a href="https://y0urm0thar.atabook.org">atabook</a> ${\text{\color{#ACADB7}✶}}$
+<a href="https://passportdex.com/y0urm0thar">passport</a>
 
 
 
